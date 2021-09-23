@@ -56,7 +56,3 @@
 
 链接:https://pan.baidu.com/s/1yQSHmM_lzx2L_s6j0-eoDA 密码:46q1
 
-作者：baihualinxin
-链接：https://www.jianshu.com/p/a8c0266a7ba4
-来源：简书
-著作权归作者所有。商业转载请联系作者获得授权，非商业转载请注明出处。
